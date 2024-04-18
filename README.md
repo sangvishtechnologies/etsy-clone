@@ -66,7 +66,7 @@ Get set to initiate your buy-and-sell marketplace journey with Sangvish, the ult
 
 Plus, enjoy the added perk of 1 year of complimentary tech support, an exclusive feature only Sangvish provides. For further insights into how we can kick-start your business journey, don't hesitate to reach out. Schedule a free live demo with us today and let's discuss how Sangvish can elevate your business aspirations.
 
-**Discover our live DEMO:**  [https://sangvish.com/etsy-clone/](https://sangvish.com/etsy-clone/)
+**Discover our live DEMO:**  https://sangvish.com/etsy-clone/#demo
 
 **contact us,**
 
